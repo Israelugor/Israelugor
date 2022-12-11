@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Israelugor
+- 👀 I’m interested in learning tech skills.
+- 🌱 I’m currently learning blockchain technology
+- 💞️ I’m looking to collaborate on team work and like minds.
+- 📫 How to reach me israelenzeaguya@gmail.com 
